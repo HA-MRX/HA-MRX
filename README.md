@@ -1,0 +1,1 @@
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=0EF70D&background=000000&lines=I+LOVE+HATER'S+%F0%9F%99%88%F0%9F%98%98;BCZ+Haters+Make+Me+Famous;Admin+%3A')+MRX-NILOY)](https://git.io/typing-svg)
